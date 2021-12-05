@@ -1,1 +1,1 @@
-[PAGE LINK](https://human-ai2025.github.io/)
+Click here for the [PAGE LINK](https://human-ai2025.github.io/)
